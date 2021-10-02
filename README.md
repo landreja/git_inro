@@ -1,1 +1,2 @@
 James Landreth
+landreja@oregonstate.edu
